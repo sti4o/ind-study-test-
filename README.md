@@ -2,8 +2,8 @@
 
 ## Teammate 1:
 Name - Tori  
-Part time - Silly guy  
-Full time - Gremlin  
+Full time - Silly guy  
+Part time - Gremlin  
 Caffenated - Always  
 Sleep - Who is she?  
 Tired - Chronically  
